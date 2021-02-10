@@ -1,4 +1,4 @@
-###  Web Developer | Grapic Designer | Mixed Media Artist
+###  Web Developer | Graphic Designer | Mixed Media Artist
 
 <!--
 **MorganPeterson1313/MorganPeterson1313** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
